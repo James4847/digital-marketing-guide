@@ -20,6 +20,6 @@ Businesses use digital marketing to reach targeted customers and increase sales.
 
 Read the complete article on my website.
 
-https://yourwebsite.com/digital-marketing-guide
+https://sahasdigitalmarketing.blogspot.com/
 
 Thank you for reading.
